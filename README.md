@@ -1,4 +1,4 @@
-**Kapil Podduturi**
+## Kapil Podduturi
 
 📍 Melbourne, Australia | 📞 (+61) 421 789 262 | ✉️ kapil.podduturi@gmail.com
 🔗 [LinkedIn](https://www.linkedin.com/in/kapil-podduturi/)
